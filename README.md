@@ -1,6 +1,6 @@
 # Interessant
 
-Do I use the word 'interessant' often **idiosyncratically** when speaking or writing German? Or did someone infect me with it?!
+Do I use the word 'interessant' **idiosyncratically** often when speaking or writing German? Or did someone infect me with it?!
 
 ---
 
